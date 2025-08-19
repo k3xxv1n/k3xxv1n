@@ -1,2 +1,2 @@
-## ¡Hola! 👋
-¡Gracias por visitar mi perfil!
+## ¡Hi! 👋
+¡Thanks for view my profile!
